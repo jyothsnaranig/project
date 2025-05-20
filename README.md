@@ -1,1 +1,1 @@
-All My Masters projects
+All My projects
